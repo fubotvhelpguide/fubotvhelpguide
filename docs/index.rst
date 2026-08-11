@@ -1,8 +1,7 @@
 ==============================================
 
-Fubo TV Login Account | Complete Sign In Guide
+How to Login Fubo TV Account | Complete Sign In Guide
 
-==============================================
 
 ============
 
